@@ -1,3 +1,8 @@
+# 💫 Hi 👋, I'm Sameer
+**A passionate on Sleeping**
+
+Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+
 
 ## 🌐 Socials:
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:contact@sameerg.com.np) 
