@@ -16,7 +16,7 @@ Email Me 👉 ✉️ **contact@sameerg.com.np** For Collaboration/Project or Any
 
 Stay updated with the latest tutorials and projects by subscribing to my Telegram channel.
 
-[![Sameer Telegram](https://img.shields.io/badge/Telegram-SG61x-pink?logo=telegram&logoColor=white)]
+[![Instagram](https://img.shields.io/badge/Telegram-SG61x-pink?logo=telegram&logoColor=white)](https://t.me/SameerCloud)
 
 
 ## 🏆 GitHub Trophies
